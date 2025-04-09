@@ -10,7 +10,7 @@ Hi, I'm Sacha! Welcome to my personal hub. Here you'll find links to my online p
 
 - ✉️ E-Mail: [sacha.dominguez.rodriguez@outlook.com](mailto:sacha.dominguez.rodriguez@outlook.com)
 - 📱 Telegram: [@SnowCrash77](https://t.me/SnowCrash77)
-- 👨🏼‍💼 LinkedIn: [Sacha Dominguez Rodriguez](www.linkedin.com/in/sacha-dominguez-rodriguez-85538b132)
+- 👨🏼‍💼 LinkedIn: [Sacha Dominguez Rodriguez](https://www.linkedin.com/in/sacha-dominguez-rodriguez-85538b132)
 
 ## 📖 About This Page
 
