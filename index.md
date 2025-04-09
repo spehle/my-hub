@@ -1,6 +1,6 @@
 # 👋 About Me
 
-Hi, I'm Sacha! Welcome to my personal hub. Here you'll find links to my online profiles and ways to get in touch with me.
+Neal Stephenson Fan; TTRPG Enthusiast; Tattooed, Nerd; Metal-Head; Cyberpunk; Shadowrunner; Hyrulian; Software-Developer; Intralogistics; Fat Fuck; Bi; 🍍; Bochum
 
 ## 🌐 Links
 
@@ -11,6 +11,7 @@ Hi, I'm Sacha! Welcome to my personal hub. Here you'll find links to my online p
 - ✉️ E-Mail: [sacha.dominguez.rodriguez@outlook.com](mailto:sacha.dominguez.rodriguez@outlook.com)
 - 📱 Telegram: [@SnowCrash77](https://t.me/SnowCrash77)
 - 👨🏼‍💼 LinkedIn: [Sacha Dominguez Rodriguez](https://www.linkedin.com/in/sacha-dominguez-rodriguez-85538b132)
+- 👾 Discord: [SnowCrash](discordapp.com/users/SnowCrash2501)
 
 ## 📖 About This Page
 
